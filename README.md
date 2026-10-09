@@ -5,7 +5,7 @@ Need urgent help crushing your assignments, passing your online classes, or acin
 ## 🚀 Join the Discord Server for Instant Help
 Click the link below to join our student community, ask questions, and submit your homework requests right now:
 
-👉 **[CLICK HERE TO JOIN THE DISCORD SERVER (https://discord.gg/2YWZ4qgK9)](https://discord.gg/2YWZ4qgK9)**
+👉 **[CLICK HERE TO JOIN THE DISCORD SERVER (https://discord.gg/NbcgDWvDR)](https://discord.gg/NbcgDWvDR)**
 
 ---
 
